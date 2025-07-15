@@ -1,6 +1,6 @@
-## 👋 Hi, I'm Jane Nduku Maweu
+## 👋 Hi, I'm Jane Nduku Maweu  
+**PhD Academic Writer | Proofreading | Thesis | Research Paper | Resume**
 
-🎓 **PhD | Data Analyst | Academic Research Consultant**  
 📍 Nairobi, Kenya | 🌐 Remote-Friendly  
 📧 janemaweu2@gmail.com | 📞 +254768463083  
 
