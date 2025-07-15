@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi there 👋<img width="1849" height="916" alt="image" src="https://github.com/user-attachments/assets/3298f9bf-13e3-4717-9c22-9e41694fa043" />
+
 
 <!--
 **Jane-tech-hub/Jane-tech-hub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
